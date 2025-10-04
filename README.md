@@ -1,0 +1,2 @@
+# ozeloran
+ÖzelOran — Resmi bağlantılar
